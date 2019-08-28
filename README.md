@@ -6,3 +6,4 @@ Dwayne Johnson as Douglas Stone
 Robert Downey Jr. as Dr. Schicht
 Arnold Schwarznegger as Ezekiel Barcroft
 Scarlet Johansson as Jean Beau
+Zain Raza as Dwayne Johnson
